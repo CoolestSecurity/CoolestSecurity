@@ -1,4 +1,5 @@
-wip
+small doodle i made of my oc x canon aww
+<img width="NUMBER" src="https://imgur.com/n5ExQuv.png"/>
 
 <!--
 **CoolestSecurity/CoolestSecurity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
